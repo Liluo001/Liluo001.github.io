@@ -1,14 +1,10 @@
-##             
-
-
-
 ![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/庆2.png)
 
 ![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/庆1.jpg)
 
-##             
 
-##                              贵州省黔南布依族苗族自治州罗甸县沫阳镇纳翁村里落组
+
+##                                     贵州省黔南布依族苗族自治州罗甸县沫阳镇纳翁村里落组
 
 
 
@@ -199,3 +195,5 @@
 61、王登排                        50元
 
 62、爱心人士                    50元
+
+63、王化来                        50元
