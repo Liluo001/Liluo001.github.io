@@ -204,3 +204,52 @@
 64、王天丹                        50元
 
 ​                                            共计：3200元
+
+#### 开支情况
+
+​          **律师法律服务费**
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E5%BE%8B%E5%B8%88%E6%B3%95%E5%BE%8B%E6%9C%8D%E5%8A%A1%E8%B4%B9.jpg)
+
+​         **生活费开支**        
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E6%94%AF%E5%87%BA%E6%83%85%E5%86%B5.jpg)
+
+
+
+​         **总开支**
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E6%80%BB%E6%94%AF%E5%87%BA%E6%83%85%E5%86%B5.jpg)
+
+
+
+
+
+#### 委托合同
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E5%A7%94%E6%89%98%E5%90%88%E5%90%8C.jpg)
+
+#### 行政复议申请书
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E8%A1%8C%E6%94%BF%E5%A4%8D%E8%AE%AE%E7%94%B3%E8%AF%B7%E4%B9%A61.jpg)
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E8%A1%8C%E6%94%BF%E5%A4%8D%E8%AE%AE%E7%94%B3%E8%AF%B7%E4%B9%A62.jpg)
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E8%A1%8C%E6%94%BF%E5%A4%8D%E8%AE%AE%E7%94%B3%E8%AF%B7%E4%B9%A63.jpg)
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E8%A1%8C%E6%94%BF%E5%A4%8D%E8%AE%AE%E7%94%B3%E8%AF%B7%E4%B9%A64.jpg)
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E8%A1%8C%E6%94%BF%E5%A4%8D%E8%AE%AE%E7%94%B3%E8%AF%B7%E4%B9%A64.jpg)
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E8%A1%8C%E6%94%BF%E5%A4%8D%E8%AE%AE%E7%94%B3%E8%AF%B7%E4%B9%A65.jpg)
+
+#### 争议地地图
+
+   **大图预览**
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E5%9C%B0%E5%9B%BE.jpg)
+
+​    **争议地区域放大**
+
+![](https://raw.githubusercontent.com/Liluo001/Liluo001.github.io/master/%E5%9C%B0%E5%9B%BE%E6%94%BE%E5%A4%A7.jpg)
+
